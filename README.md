@@ -1,7 +1,5 @@
- Hi, I’m not @Solidsilvr
+  Hi, I’m not @Solidsilvr
 
+      Working on random BS!
 
-Working on random BS!
-
-
-Dm me for no reason.
+              Dm me for no reason.
